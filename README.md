@@ -58,3 +58,5 @@ No Further Games End of Season
 
 Stats
 
+Win  Loss
+52 - 77
