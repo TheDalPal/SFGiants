@@ -25,7 +25,7 @@ No Games
 vs. White Sox
 
 9/11 - 9/13 Home
-vs. Dogers
+vs. Dogers (Rivals)
 
 9/14
 No Games
@@ -43,7 +43,7 @@ vs. Rockies
 No Games
 
 9/22 - 9/24 Away
-vs. Dogers
+vs. Dogers (Rivals)
 
 9/25 - 9/27 Away
 vs. D-backs
