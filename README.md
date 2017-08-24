@@ -7,16 +7,16 @@ End of Giants Schedule 2017
 No Games
 
 8/25 - 8/27 Away
-vs. D-backs 
+vs. Arizona D-backs 
 
 8/28 - 8/30 Away
-Giants vs. Padres
+Giants vs. San Diego Padres
 
 8/31 - 9/3 Home
-vs. Cardinals
+vs. St. Lewis Cardinals
 
 9/4 - 9/6 Away
-vs. Rockies
+vs. Colorado Rockies
 
 9/7
 No Games
@@ -25,33 +25,33 @@ No Games
 vs. White Sox
 
 9/11 - 9/13 Home
-vs. Dogers (Rivals)
+vs. LA Dogers (Rivals)
 
 9/14
 No Games
 
 9/15 - 9/17 Home
-vs. D-backs
+vs. Arizona D-backs
 
 9/18
 No Games
 
 9/19- 9/20 Home
-vs. Rockies
+vs. Colorado Rockies
 
 9/21
 No Games
 
 9/22 - 9/24 Away
-vs. Dogers (Rivals)
+vs. LA Dogers (Rivals)
 
 9/25 - 9/27 Away
-vs. D-backs
+vs. Arizona D-backs
 
 9/28
 No Games
 
 9/29 - 10/1 Home
-vs. Padres
+vs. San Diego Padres
 
 No Further Games End of Season
