@@ -1,7 +1,7 @@
 SFGiants
 
 
-Giants Schedule 2017
+End of Giants Schedule 2017
 
 8/24
 No Games
