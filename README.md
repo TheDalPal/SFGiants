@@ -41,3 +41,12 @@ Giants vs. Rockies
 
 9/21
 No Games
+
+9/22 - 9/24
+Giants vs. Dogers
+
+9/25 - 9/27
+Giants vs. D-backs
+
+9/28
+No Games
