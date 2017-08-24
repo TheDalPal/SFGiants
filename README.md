@@ -6,22 +6,22 @@ Giants Schedule 2017
 8/24
 No Games
 
-8/25 - 8/27 
-Giants vs. D-backs
+8/25 - 8/27 Away
+Giants vs. D-backs 
 
-8/28 - 8/30
+8/28 - 8/30 Away
 Giants vs. Padres
 
 8/31 - 9/3
 Giants vs. Cardinals
 
-9/4 - 9/6
+9/4 - 9/6 Away
 Giants vs. Rockies
 
 9/7
 No Games
 
-9/8 - 9/10
+9/8 - 9/10 Away
 Giants vs. White Sox
 
 9/11 - 9/13
@@ -42,10 +42,10 @@ Giants vs. Rockies
 9/21
 No Games
 
-9/22 - 9/24
+9/22 - 9/24 Away
 Giants vs. Dogers
 
-9/25 - 9/27
+9/25 - 9/27 Away
 Giants vs. D-backs
 
 9/28
