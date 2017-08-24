@@ -50,3 +50,7 @@ Giants vs. D-backs
 
 9/28
 No Games
+
+9/29 - 10/1
+Giants vs. Padres
+
