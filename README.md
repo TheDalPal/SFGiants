@@ -10,7 +10,7 @@ No Games
 vs. Arizona D-backs 
 
 8/28 - 8/30 Away
-Giants vs. San Diego Padres
+vs. San Diego Padres
 
 8/31 - 9/3 Home
 vs. St. Lewis Cardinals
