@@ -17,7 +17,7 @@ vs. San Diego Padres
 vs. St. Lewis Cardinals
 
 9/4 - 9/6 Away
-vs. Colorado Rockies
+vs. Colorado Rockies *
 
 9/7
 No Games
