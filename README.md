@@ -26,7 +26,7 @@ No Games
 vs. White Sox
 
 9/11 - 9/13 Home
-vs. LA Dogers (Rivals)
+vs. LA Dogers (Rivals) *
 
 9/14
 No Games
