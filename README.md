@@ -38,7 +38,7 @@ vs. Arizona D-backs *
 No Games
 
 9/19- 9/20 Home
-vs. Colorado Rockies
+vs. Colorado Rockies *
 
 9/21
 No Games
