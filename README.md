@@ -2,6 +2,7 @@ SFGiants
 
 
 Giants Schedule 2017 8/24 - 10/1
+The Best Baseball Team Ever.
 
 8/24
 No Games
