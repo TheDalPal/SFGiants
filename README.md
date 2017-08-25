@@ -44,7 +44,7 @@ vs. Colorado Rockies *
 No Games
 
 9/22 - 9/24 Away
-vs. LA Dogers (Rivals)
+vs. LA Dogers (Rivals) *
 
 9/25 - 9/27 Away
 vs. Arizona D-backs
