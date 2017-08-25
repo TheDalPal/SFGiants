@@ -47,7 +47,7 @@ No Games
 vs. LA Dogers (Rivals) *
 
 9/25 - 9/27 Away
-vs. Arizona D-backs
+vs. Arizona D-backs *
 
 9/28
 No Games
