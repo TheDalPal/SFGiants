@@ -8,7 +8,7 @@ The Best Baseball Team Ever.
 No Games
 
 8/25 - 8/27 Away
-vs. Arizona D-backs 
+vs. Arizona D-backs *
 
 8/28 - 8/30 Away
 vs. San Diego Padres
